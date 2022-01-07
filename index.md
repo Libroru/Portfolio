@@ -52,4 +52,4 @@ Obviously it's not free. Here is a table with some prices:
 
 --
 
-I would always prefer real money (PayPal), but if it's the only thing you can offer, then it doesn't matter.
+I always prefer real money (PayPal), but if it's the only thing you can offer, then it doesn't matter.
