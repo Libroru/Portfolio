@@ -35,9 +35,11 @@ Obviously it's not free. Here is a table with some prices:
 |USD30$ or 2,400R$| Footage up to 45 minutes |
 |+USD10$ or +800R$ | Footage +15 minutes |
 
+
 |Price| TikTok Conversion |
 |-----| ----------- |
 |USD5$ or 400R$| Video up to 3 minute video length |
+
 
 |Price| TikTok Conversion |
 |-----| ----------- |
