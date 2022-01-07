@@ -33,17 +33,17 @@ Obviously it's not free. Here is a table with some prices:
 |-----| ----------- |
 |USD20$ or 1,600R$| Footage up to 30 minutes |
 |USD30$ or 2,400R$| Footage up to 45 minutes |
-|+USD10$ or +800R$ | Footage +15 minutes |
+|+USD10$ or +800R$ | Footage +15 minutes |  
 
 
 |Price| TikTok Conversion |
 |-----| ----------- |
-|USD5$ or 400R$| Video up to 3 minute video length |
+|USD5$ or 400R$| Video up to 3 minute video length |  
 
 
 |Price| TikTok Conversion |
 |-----| ----------- |
 |USD5$ or 400R$| Normal thumbnail |
-|USD7,50$ or 600R$| Thumbnail + Avatar GFX render |
+|USD7,50$ or 600R$| Thumbnail + Avatar GFX render |  
 
 I would always prefer real money (PayPal), but if it's the only thing you can offer, then it doesn't matter.
