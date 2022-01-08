@@ -27,7 +27,9 @@ I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
 
 ### Pricing
 
-Obviously it's not free. Here is a table with some prices:
+Obviously it's not free.
+**I finish the edit, you pay for it, I remove the watermarks.**
+Here are the prices:
 
 |Price| YouTube Video |
 |-----| ----------- |
