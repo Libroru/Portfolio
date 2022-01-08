@@ -19,7 +19,7 @@ I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
 
 [Basic webcam video](https://www.youtube.com/watch?v=daRmgGOwz0Y)  
 [Basic gameplay video](https://www.youtube.com/watch?v=jr1YDPolI24)  
-[Variety/Just Chatting](https://www.youtube.com/watch?v=NH7qy_MLNrg)  
+[Commentary Video](youtube.com/watch?v=rvv8M5joO_sg)  
 
 [Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554)  
 [Some more](https://i9.ytimg.com/vi/XLVKH2uj0vo/maxresdefault.jpg?time=1641545700000&sqp=COT_344G&rs=AOn4CLC_osCyhy8LDEiQ-4dAClXkYTscVA)  
