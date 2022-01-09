@@ -19,39 +19,39 @@ I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
 
 [Basic webcam video](https://www.youtube.com/watch?v=daRmgGOwz0Y)  
 [Basic gameplay video](https://www.youtube.com/watch?v=jr1YDPolI24)  
-[Commentary Video](youtube.com/watch?v=rvv8M5joO_sg)  
+[Commentary Video](https://youtube.com/watch?v=rvv8M5joO_sg)  
 
 [Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554)  
-[Some more](https://i9.ytimg.com/vi/XLVKH2uj0vo/maxresdefault.jpg?time=1641545700000&sqp=COT_344G&rs=AOn4CLC_osCyhy8LDEiQ-4dAClXkYTscVA)  
 [Some clothing ad for Roblox](https://media.discordapp.net/attachments/264055287479140352/610057679477538816/lrectangleadoutifts.png)  
 
 ### Pricing
 
 Obviously it's not free.
-**I finish the edit, you pay for it, I remove the watermarks.**
+**I finish the edit, you pay for it, I remove the watermarks.**  
+**You get 3 free revisions**, every after costs an *additional* **US$2.50**.  
 Here are the prices:
 
 |Price| YouTube Video |
 |-----| ----------- |
-|USD20$ or 1,600R$| Footage up to 30 minutes |
-|+USD10$ or +800R$ | Footage +15 minutes |
-|+USD10$ or +800R$ | Adding subtitles to the entire video |
+|US$20 or 1,600R$| Footage up to 30 minutes |
+|+US$10 or +800R$ | Footage +15 minutes |
+|+US$10 or +800R$ | Adding subtitles to the entire video |
 |+30% tax rate if in Robux| Mandatory |  
 
 --
 
 |Price| TikTok Conversion |
 |-----| ----------- |
-|USD5$ or 400R$| Video up to 3 minute video length |
-|USD2,5$ or 200R$| Adding Subtitles |
+|US$5 or 400R$| Video up to 3 minute video length |
+|US$2.5 or 200R$| Adding Subtitles |
 |+30% tax rate if in Robux| Mandatory |  
 
 --
 
 |Price| Thumbnail work |
 |-----| ----------- |
-|USD5$ or 400R$| Normal thumbnail |
-|USD7,50$ or 600R$| Thumbnail + Avatar GFX render |
+|US$5 or 400R$| Normal thumbnail |
+|US$7.50 or 600R$| Thumbnail + Avatar GFX render |
 |+30% tax rate if in Robux| Mandatory |  
 
 --
