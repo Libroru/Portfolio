@@ -33,27 +33,24 @@ Here are the prices:
 
 |Price| YouTube Video |
 |-----| ----------- |
-|US$20 or 1,600R$| Footage up to 30 minutes |
-|+US$10 or +800R$ | Footage +15 minutes |
-|+US$10 or +800R$ | Adding subtitles to the entire video |
-|+30% tax rate if in Robux| Mandatory |  
+|US$20| Footage up to 30 minutes |
+|+US$10| Footage +15 minutes |
+|+US$10| Adding subtitles to the entire video |
 
 --
 
 |Price| TikTok Conversion |
 |-----| ----------- |
-|US$5 or 400R$| Video up to 3 minute video length |
-|US$2.5 or 200R$| Adding Subtitles |
-|+30% tax rate if in Robux| Mandatory |  
+|US$5| Video up to 3 minute video length |
+|US$2.5| Adding Subtitles |
 
 --
 
 |Price| Thumbnail work |
 |-----| ----------- |
-|US$5 or 400R$| Normal thumbnail |
-|US$7.50 or 600R$| Thumbnail + Avatar GFX render |
-|+30% tax rate if in Robux| Mandatory |  
+|US$5| Normal thumbnail |
+|US$7.50| Thumbnail + Avatar GFX render |
 
 --
 
-I always prefer real money (PayPal), but if it's the only thing you can offer, then it doesn't matter.
+I always prefer real money (PayPal)
