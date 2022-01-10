@@ -22,7 +22,6 @@ I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
 [Commentary Video](https://youtube.com/watch?v=rvv8M5joO_sg)  
 
 [Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554)  
-[Some clothing ad for Roblox](https://media.discordapp.net/attachments/264055287479140352/610057679477538816/lrectangleadoutifts.png)  
 
 ### Pricing
 
@@ -49,8 +48,7 @@ Here are the prices:
 |Price| Thumbnail work |
 |-----| ----------- |
 |US$5| Normal thumbnail |
-|US$7.50| Thumbnail + Avatar GFX render |
 
 --
 
-I always prefer real money (PayPal)
+I only accept money over PayPal
