@@ -21,7 +21,12 @@ I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
 [Basic gameplay video](https://www.youtube.com/watch?v=jr1YDPolI24)  
 [Commentary Video](https://youtube.com/watch?v=rvv8M5joO_sg)  
 
-[Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554)  
+[Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554) 
+
+---
+### Past Commisions
+
+For [Soreyx](https://www.youtube.com/channel/UCPAHPIf3qG5DfwH99YahM1A) - [Video](https://1drv.ms/v/s!Art90aviZL0fzXXPeznw1ib-_eQZ?e=17p80i)
 
 ### Pricing
 
