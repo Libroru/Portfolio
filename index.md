@@ -17,8 +17,6 @@ I have my own YouTube channel which I edit for and I am also an editor for Sebch
 I have my own channel which I edit for [here](https://www.youtube.com/channel/UCpNA4-mfV_bhbcjHBPluRpQ)  
 I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)  
 
-[Basic webcam video](https://www.youtube.com/watch?v=daRmgGOwz0Y)  
-[Basic gameplay video](https://www.youtube.com/watch?v=jr1YDPolI24)  
 [Commentary Video](https://youtube.com/watch?v=rvv8M5joO_sg)  
 
 [Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554) 
