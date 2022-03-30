@@ -41,12 +41,14 @@ Here are the prices:
 |US$20| Footage up to 60 minutes |
 |+US$10| Footage +30 minutes |
 |+US$5| Adding subtitles to the entire video |
-
+  
+  
 |Price| TikTok Conversion |
 |-----| ----------- |
 |US$5| Video up to 3 minute video length |
 |US$2| Adding Subtitles |
-
+  
+  
 |Price| Thumbnail work |
 |-----| ----------- |
 |US$5| Normal thumbnail |
