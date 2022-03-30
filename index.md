@@ -21,37 +21,32 @@ I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
 
 [Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554) 
 
----
 ### Past Commisions
 
 For [Soreyx](https://www.youtube.com/channel/UCPAHPIf3qG5DfwH99YahM1A) - [Video](https://1drv.ms/v/s!Art90aviZL0fzXXPeznw1ib-_eQZ?e=17p80i)
 
+---
+
 ### Pricing
 
-Obviously it's not free.
+I only accept money over PayPal
+
 **I finish the edit, you pay for it, I remove the watermarks.**  
-**You get 3 free revisions**, every after costs an *additional* **US$2.50**.  
+**You get 3 free revisions**
+
 Here are the prices:
 
 |Price| YouTube Video |
 |-----| ----------- |
-|US$20| Footage up to 30 minutes |
-|+US$10| Footage +15 minutes |
-|+US$10| Adding subtitles to the entire video |
-
---
+|US$20| Footage up to 60 minutes |
+|+US$10| Footage +30 minutes |
+|+US$5| Adding subtitles to the entire video |
 
 |Price| TikTok Conversion |
 |-----| ----------- |
 |US$5| Video up to 3 minute video length |
-|US$2.5| Adding Subtitles |
-
---
+|US$2| Adding Subtitles |
 
 |Price| Thumbnail work |
 |-----| ----------- |
 |US$5| Normal thumbnail |
-
---
-
-I only accept money over PayPal
