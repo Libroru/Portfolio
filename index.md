@@ -32,21 +32,17 @@ For [Soreyx](https://www.youtube.com/channel/UCPAHPIf3qG5DfwH99YahM1A) - [Video]
 I only accept money over PayPal
 
 **I finish the edit, you pay for it, I remove the watermarks.**  
-**You get 3 free revisions**
 
 Here are the prices:
 
 |Price| YouTube Video |
 |-----| ----------- |
-|US$20| Footage up to 60 minutes |
-|+US$10| Footage +30 minutes |
-|+US$5| Adding subtitles to the entire video |
+|US$25| A YouTube is 25$ |
   
   
 |Price| TikTok Conversion |
 |-----| ----------- |
 |US$5| Video up to 3 minute video length |
-|US$2| Adding Subtitles |
   
   
 |Price| Thumbnail work |
