@@ -38,13 +38,5 @@ Here are the prices:
 |Price| YouTube Video |
 |-----| ----------- |
 |US$25| A YouTube is 25$ |
-  
-  
-|Price| TikTok Conversion |
-|-----| ----------- |
-|US$5| Video up to 3 minute video length |
-  
-  
-|Price| Thumbnail work |
-|-----| ----------- |
-|US$5| Normal thumbnail |
+
+Anything else will be discussed in DMs
