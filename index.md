@@ -28,15 +28,19 @@ For [Soreyx](https://www.youtube.com/channel/UCPAHPIf3qG5DfwH99YahM1A) - [Video]
 ---
 
 ### Pricing
-
-I only accept money over PayPal
-
+  
+***I only accept money over PayPal***
+---
 **I finish the edit, you pay for it, I remove the watermarks.**  
-
+  
 Here are the prices:
-
-|Price| YouTube Video |
-|-----| ----------- |
-|US$25| A YouTube is 25$ |
-
+  
+|Tier|Price| YouTube Video |
+|----|-----| ----------- |
+|I|US$15| Basic editing with no special effects |
+|II|US$20| Basic editing with zooms and optional transitions|
+|III|US$25| Basic editing with zooms, optional transitions and subtitles|
+|IV|US$40| <5h footage editing including all the above tiers|
+  
 Anything else will be discussed in DMs
+  
