@@ -18,6 +18,9 @@ I have worked closely with a lot of creators online and client from all around t
 
 I have my own channel [here]([https://www.youtube.com/channel/UCpNA4-mfV_bhbcjHBPluRpQ](https://www.youtube.com/@LibroruTTV))  
 I also sometimes edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
+Here are my best videos:
+[Number 1](https://www.youtube.com/watch?v=DW4_kef72o4)<br>
+[Number 2](https://www.youtube.com/watch?v=Bo26x_7743w)<br>
 
 ### Past Commisions
 
