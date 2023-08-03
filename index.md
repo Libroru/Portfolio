@@ -1,35 +1,36 @@
 ## Libroru's Portfolio
 
-Hey there! Thanks for checking out my portfolio! I've been editing for years now! Below you will find some examples of edits I did!
+Hey there! Thanks for checking out my portfolio!
+I have 6 years of experience invideo editing for YouTube videos.  
+I have worked closely with a lot of creators online and client from all around the world, so I know what viewers of your video will expect!
 
-I have my own YouTube channel which I edit for and I am also an editor for Sebchoof.
+[Fiverr](https://www.fiverr.com/libroru)
 
 ### What you can hire me for
 
 - Editing a YouTube video
 - Turning clips into a TikTok/Reels/Shorts friendly video
-- Subtitling a video
-- Custom Requests -> DM me on Discord (Libroru#1185)
-- (Thumbnails. I am not very experienced with it, but I will leave some examples down below.)
+- Subtitling a video (extra)
+- Custom Requests -> DM me on Discord (libroru)
+- (Thumbnails. I am not very experienced with those.)
 
 ### What my recent edits look like
 
-I have my own channel which I edit for [here](https://www.youtube.com/channel/UCpNA4-mfV_bhbcjHBPluRpQ)  
-I also edit for [Sebchoof](https://www.youtube.com/user/sebchooo)  
-
-[Commentary Video](https://youtube.com/watch?v=rvv8M5joO_sg)  
-
-[Here is some thumbnail work](https://media.discordapp.net/attachments/264055287479140352/877169203260588082/thumb.png?width=984&height=554) 
+I have my own channel [here]([https://www.youtube.com/channel/UCpNA4-mfV_bhbcjHBPluRpQ](https://www.youtube.com/@LibroruTTV))  
+I also sometimes edit for [Sebchoof](https://www.youtube.com/user/sebchooo)
 
 ### Past Commisions
 
-For [Soreyx](https://www.youtube.com/channel/UCPAHPIf3qG5DfwH99YahM1A) - [Video](https://1drv.ms/v/s!Art90aviZL0fzXXPeznw1ib-_eQZ?e=17p80i)
+For [Soreyx](https://1drv.ms/v/s!Art90aviZL0fzXXPeznw1ib-_eQZ?e=17p80i)
+For [carve](https://1drv.ms/v/s!Art90aviZL0f1hvtB7kL_Aqj8i5z?e=8Pw3LU)
+For [Sourcefed](https://1drv.ms/v/s!Art90aviZL0f0k84PRrTDYFm623L?e=lxWkil)
+For [visuant](https://1drv.ms/v/s!Art90aviZL0f1QTUtf9tgRQRF6-r?e=H4hPPr)
 
 ---
 
 ### Pricing
   
-***I only accept money over PayPal***
+***I use Stripe for payments***
 ---
 **I finish the edit, you pay for it, I remove the watermarks.**  
   
@@ -37,10 +38,11 @@ Here are the prices:
   
 |Tier|Price| YouTube Video |
 |----|-----| ----------- |
-|I|US$15| Basic editing with no special effects |
-|II|US$20| Basic editing with zooms and optional transitions|
-|III|US$25| Basic editing with zooms, optional transitions and subtitles|
-|IV|US$40| <5h footage editing including all the above tiers|
+|I|US$20| Basic editing with no special effects;<br>Footage up to 1h with a runtime of 10 minutes. |
+|II|US$30| Basic editing with zooms, optional transitions and sound design;<br>Footage up to 2h with a runtime of 15 minutes. |
+|III|US$50| Basic editing with zooms, optional transitions, sound design and motion graphics;<br>Footage up to 3h with a runtime of 20 minutes. |
+|+|US$10| Word for word subtitling |
+|+|US$5| +1h of raw footage |
   
 Anything else will be discussed in DMs
   
